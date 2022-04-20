@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ioanaamaria
+- 👀 I’m interested in coding, editing, singing and reading
+- 🌱 I’m currently learning coding
